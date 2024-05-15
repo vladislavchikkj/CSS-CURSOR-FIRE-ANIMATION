@@ -1,1 +1,2 @@
 # CSS-CURSOR-FIRE-ANIMATION
+![31313](https://github.com/vladislavchikkj/CSS-CURSOR-FIRE-ANIMATION/assets/104150293/62610c2e-c20c-4964-ab97-5de1eb973cc7)
